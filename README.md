@@ -1,0 +1,1 @@
+# Adaptar Team Blog
